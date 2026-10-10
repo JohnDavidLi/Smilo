@@ -42,7 +42,7 @@ Dieser Roman ist eine postapokalyptische Fiktion. Alle Charaktere und Handlungen
 Obwohl der Roman auf Deutsch verfasst ist, findet die beschriebene Kommunikation in der Welt der Figuren allgemein auf Englisch statt.
 
 
-Ich empfehle diesen Roman für Jugendliche ab 16 Jahren. Neben dem nötigen Verständnis für die technischen und chemischen Details erlaubt dieses Alter auch einen abgeklärteren Blick auf das Thema der ersten Liebe.
+Ich empfehle diesen Roman ab 18 Jahren. Neben dem nötigen Verständnis für die technischen und chemischen Details erlaubt dieses Alter auch einen abgeklärteren Blick auf das Thema der ersten Liebe.
 
 
 Zur Orientierung beim Lesen: Besonders betonte Worte in Gesprächen sind *kursiv* hervorgehoben
