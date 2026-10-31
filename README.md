@@ -30,6 +30,14 @@ Sie können den Roman auf zwei Arten völlig kostenlos lesen:
 
 ---
 
+Der Roman liegt auch auf:
+
+Neocities: [https://johndavidli.neocities.org](https://johndavidli.neocities.org)
+
+und Inkitt: [https://www.inkitt.com/stories/1914942](https://www.inkitt.com/stories/1914942)
+
+---
+
 **Lizenz (Creative Commons)**
 
 Dieses Werk ist Open Source. Es ist unter der **Creative Commons Namensnennung 4.0 International (CC-BY 4.0)** lizenziert.
